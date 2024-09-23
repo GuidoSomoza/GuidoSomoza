@@ -1,5 +1,5 @@
 # 💫 About Me:
-- Data scientist - In progress<br>- Ecommerce Manager. <br>+4 years in Ecommerce<br><br><br>
+-Systems Analyst - In progress<br>- BI developer. <br><br><br><br>
 
 
 ## 🌐 Socials:
